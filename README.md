@@ -95,6 +95,7 @@ Surnom officieux : “Le Chuchotement du Diable”.
 * **2 Paintballs car juste drôle pour aveugler le pare brise ou les vitres des (potentiel) assayant
 * **Il peut lancer un écran de fumé ou même un grosse ondes EMP, Les impulsions électromagnétiques, Brouillages GPS, radio, satellite
 * **Il peut faire chauffer ou réfroidir la carrosserie en fonction du lieu
+* **Il a des lasers très puissant et il peut faire fondre du métal voire même de la pière
 ---
 # **Intérieur : Digne d'un palace sous stéroïdes 🏠😎""
 * **Une cuisine full équipé car en mission les repas doivent être bon.
