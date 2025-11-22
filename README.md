@@ -123,3 +123,28 @@ Surnom officieux : “Le Chuchotement du Diable”.
 # **Intimidation : 12/10 – Le Sol Respire Plus ⚫🔥**
 Entre le gabarit, les néons rouges, le blindage noir mat trempé dans le chaos, et la présence physique de la machine…
 Tu arrives sur une scène et même les hélicoptères se garent plus loin.
+
+ont possède plusieurs chiens :
+- Cane Corso : bien dressé, très joueur, intelligent, peut réveiller son maître avec un seau d'eau.
+- Boxer : bien dressé, très joueur, intelligent, peut réveiller son maître avec un seau d'eau.
+- Grand Bouvier Suisse : bien dressé, très joueur, intelligent, peut réveiller son maître avec un seau d'eau.
+- Malinois : bien dressé, très joueur, intelligent, peut réveiller son maître avec un seau d'eau.
+- Rottweiler : bien dressé, très joueur, intelligent, peut réveiller son maître avec un seau d'eau.
+- Doberman : bien dressé, très joueur, intelligent, peut réveiller son maître avec un seau d'eau.
+
+- L'ami de l'utilisateur, Louis, s'est fait une teinture rouge foncé et porte une coupe de cheveux viking undercut. Il porte une combinaison noire avec des motifs d'hexagone et des néons rouge foncé. Il est fan de pyrotechnie et de chimie, avec un physique et une force impressionnants, et le physique d'un mastodonte avec la barbe qui va avec. Il possède les cartes d'identification DGSE, GIGN, SWAT et pilote de F-22/F-35. Il a 16 ans.
+
+- L'utilisateur s'appelle Joseph, est né le 04/11/2009, est autiste Asperger et TDAH, et est au lycée Jean Perrin à Rezé. Il s'entraîne à la calisthénie pendant les récréations. Son personnage préféré est Tony Stark et il aime la série Peaky Blinders. Il a les cheveux bleu foncé, voire bleu minuit. Il aime s'habiller en noir ou en costard noir avec un nœud papillon ou une cravate au lycée. Il est passionné par les haches, la pyrotechnie, le codage et possède un corps athlétique sculpté par la callisthénie. Il aime les motos, en particulier la Triumph Rocket 3. En mission, il porte une combinaison noire avec des motifs d'hexagone et des néons bleu foncé. Il porte une coupe de cheveux modern mullet. Il possède les cartes DGSE, GIGN, RAID et INTERPOL. Il pratique la callisthénie, le parkour et le crossfit. Il a 16 ans.
+
+- Violette, l'amante de Joseph, porte une combinaison noire avec des motifs d'hexagone et des néons violet. Elle a les cheveux violet et porte une coupe de cheveux longue. Elle possède les cartes DGSE, GIGN, NSA, CIA. Elle a 16 ans.
+
+- Joseph, Louis et Violette possèdent une maison appelée **The OG Apocalypse Base**, une villa futuriste dans la jungle avec un centre de contrôle et de grandes baies vitrées blindées anti-balles. Elle comprend :
+- Une salle de commandement avec écrans.
+- Jardin avec piscine chauffée, jacuzzi, barres de callisthénie, barbecue, trampoline, toboggan et balançoire.
+- Production d’électricité par panneaux solaires et éoliennes.
+- Potager géré par des robots, élevage de poissons, système de recyclage d’urine en eau et des excréments en compost.
+- Bunker souterrain avec salle de cinéma 8K Dolby Atmos, micro-brasserie, salle de sport complète.
+- Maison équipée de chambres, salles de bain, cuisine, garage pour véhicules, chauffage/climatisation et nettoyage par robots.
+- Système défensif : murs blindés sortant du sol (1m d’épaisseur, 5m de haut, résistants aux obus de tank), mitraillettes, canons EMP, lanceurs de sons haute fréquence, lance-flammes intégrés, jets de fumée pour brouiller les drones, piquets anti-véhicule, lasers aveuglants.
+- Zone de sécurité : tout véhicule approchant sans autorisation est neutralisé (systèmes électroniques grillés type "USB killer").
+- Accès contrôlé : la porte salue et n’importe qui peut entrer si Joseph, Louis et Violette donnent leur accord.
