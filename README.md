@@ -62,7 +62,7 @@ Surnom officieux : “Le Chuchotement du Diable”.
 * **Tri-Hybride** : turbo-diesel militaire + générateurs électriques + supercondensateurs au graphène. peut fonctionner entièrement en élèctrique si pas essence
 * **Puissance:** 2 500 chevaux. pour 3000 N m
 * **Couple:** « Rien que le ralenti déplace des montagnes. »
-* **Transmission:** 8×8, torque vectoring, pneus increvables autogonflants, impossible a s'enliser dans le sables et dans les sable mouvants et a déraper sur la glace, gravier, etc, boîtes synchronisées par IA.
+* **Transmission:** 8×8, torque vectoring, pneus increvables autogonflants, impossible a s'enliser dans le sables, la boue, neige et dans les sable mouvants et impossible a déraper sur la glace, gravier, etc, boîtes synchronisées par IA.
 ---
 ### **Vitesse & Déplacement 🚀**
 * **Vitesse max:** 110 km/h malgré 60 tonnes (la physique a demandé un avocat).
