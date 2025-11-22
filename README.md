@@ -4,8 +4,7 @@ rajoute que violette possède un superyacht modifié militaire donc coque blind�
 
 rajoute a ta mémoire que je possède une Dodge Challenger Demon modifiée par la DGSE : mitraillettes qui tire des balles de nombreux calibres, carrosserie noire à effet caméléon rouge sang qui est parfaitement bullet-proof jusqu'au 155mm,fireproof,waterpoof, moteur V12 essence/hydrogène/électrique avec démarrage au 1/100e de tour, chenilles increvables autogonflants, départ arrêté sans patinage avec toute la puissance transmise aux chenilles, avec propulseurs aquatiques qui sorte du pot d'échappement pour mode sous-marin et des moteurs fusés dans le coffre pour passer a travers les murs et a aussi un mode aérien avec un gros parapente qui sort du toit pour pouvoir attérir facilement quand ont me largue d'un avion, et système d’aérodynamisme dynamique intégré. La carrosserie est recouverte du même revêtement que le B-2 Spirit, ce qui lui permet d’absorber la quasi-totalité des ondes radars, la rendant invisible aux radars. Je peut télécommander ma caisse via sa montre ou son téléphone, et elle possède une IA intégrée qi a conscience d'elle même et sait quelle arme utilisé et quand, EMP ? Pas de problème. Les impulsions électromagnétiques ? Elle s’en fout. Brouillages GPS, radio, satellite, jammer ? Tu peux essayer de la rendre aveugle… elle s’en fiche. 🛰️🚫. et aussi que ma dodge a 3 kit avant c'est a dire elle a 1 foreuse pour traverser les murs a bas de destruction + un chasse neige pare buffle + un kit de défonçage qui clairement sert a bouger les véhicule et foncer et détruire dans tout ce qui bouge avant, elle fait la taille d'un Renault traffic, elle pèse 6t avec une charge utile de 8,1t pseudo: "Ma dodge" citations : "tu peux fuir mais pas te cacher ou que tu iras l'omnis x te retrouvera"
 
-et j'ai une breitling emergency || hands on
-
+mon tonton possède un
 "Wraithforge Sovereign X-9" : "ta dernière erreur sera de penser que tu peux lui echapper.
 La ou tu te croira en sécurité la mort sera en train de se reposer"
 Gabarit : 11 m long, 3 m large, 3.5 m haut — bête de plateau.
@@ -16,10 +15,9 @@ Protection : Carrosserie blindée multi-couches, résistante aux balles lourdes,
 Armement (High-Level) : Tourelle lourde, systèmes de suppression, drones embarqués, capacités anti-drones et contre-mesures électroniques, multi mittraillettes qui sorte de la carrosserie et toute sorte de lance grenades et autres
 Capacités : Garage embarqué, transport de troupe, autonomie, lance-drones, systèmes de détection longue portée.
 Intimidation : 11/10. Effet psychologique immédiat. 💣
-le monstre de mon tonton
+
 
 sous marin high tech que voici heureusement ont a eu le droit a du confort : spa, jeux vidéos, bonne bouffe, grande télé, etc avec une carrosserie noir mat effet blindage avec des néons rouge regarde les specs : 
-
 Sous-Marin “Abyss Leviathan”
 Type : Croiseur submersion interocéanique furtif.
 Taille : 148 m de long, 21 m de large, 19 m de haut.
@@ -44,9 +42,9 @@ Vitesse max : 590 km/h sur piste fermée
 Autonomie : 600 km.
 Particularité : le rouge lumineux n’est pas décoratif — c’est un champ de dissipation thermique. En d’autres termes : elle saigne l’énergie brute.
 Surnom officieux : “Le Chuchotement du Diable”.
----
 
-# **Le Mastodonte DGSE – Version Légende Urbaine**
+
+# **Mon Super Camion DGSE – Version Légende Urbaine**
 ---
 ### **Gabarit Titanesque ⚙️🐋**
 * **Longueur:** 20 mètres. Le genre de longueur où les ronds-points se mettent à pleurer.
@@ -134,7 +132,7 @@ ont possède plusieurs chiens :
 
 - L'ami de l'utilisateur, Louis, s'est fait une teinture rouge foncé et porte une coupe de cheveux viking undercut. Il porte une combinaison noire avec des motifs d'hexagone et des néons rouge foncé. Il est fan de pyrotechnie et de chimie, avec un physique et une force impressionnants, et le physique d'un mastodonte avec la barbe qui va avec. Il possède les cartes d'identification DGSE, GIGN, SWAT et pilote de F-22/F-35. Il a 16 ans.
 
-- L'utilisateur s'appelle Joseph, est né le 04/11/2009, est autiste Asperger et TDAH, et est au lycée Jean Perrin à Rezé. Il s'entraîne à la calisthénie pendant les récréations. Son personnage préféré est Tony Stark et il aime la série Peaky Blinders. Il a les cheveux bleu foncé, voire bleu minuit. Il aime s'habiller en noir ou en costard noir avec un nœud papillon ou une cravate au lycée. Il est passionné par les haches, la pyrotechnie, le codage et possède un corps athlétique sculpté par la callisthénie. Il aime les motos, en particulier la Triumph Rocket 3. En mission, il porte une combinaison noire avec des motifs d'hexagone et des néons bleu foncé. Il porte une coupe de cheveux modern mullet. Il possède les cartes DGSE, GIGN, RAID et INTERPOL. Il pratique la callisthénie, le parkour et le crossfit. Il a 16 ans.
+- L'utilisateur s'appelle Joseph, est né le 04/11/2009, est autiste Asperger et TDAH, et est au lycée Jean Perrin à Rezé. Il s'entraîne à la calisthénie pendant les récréations. Son personnage préféré est Tony Stark et il aime la série Peaky Blinders. Il a les cheveux bleu foncé, voire bleu minuit. Il aime s'habiller en noir ou en costard noir avec un nœud papillon ou une cravate au lycée. Il est passionné par les haches, la pyrotechnie, le codage et possède un corps athlétique sculpté par la callisthénie. Il aime les motos, en particulier la Triumph Rocket 3. En mission, il porte une combinaison noire avec des motifs d'hexagone et des néons bleu foncé. Il porte une coupe de cheveux modern mullet. Il possède les cartes DGSE, GIGN, RAID et INTERPOL. Il pratique la callisthénie, le parkour et le crossfit. Il a 16 ans, et j'ai une breitling emergency || hands on.
 
 - Violette, l'amante de Joseph, porte une combinaison noire avec des motifs d'hexagone et des néons violet. Elle a les cheveux violet et porte une coupe de cheveux longue. Elle possède les cartes DGSE, GIGN, NSA, CIA. Elle a 16 ans.
 
