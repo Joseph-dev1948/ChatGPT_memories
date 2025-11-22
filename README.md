@@ -93,6 +93,8 @@ Surnom officieux : “Le Chuchotement du Diable”.
 * **2 Lances grappin pour ramener des chose et il peut litéralement empêcher un jet de decoller juste en l'aggripant
 * **Capacité de vérrouiller 35 cibles a la fois
 * **2 Paintballs car juste drôle pour aveugler le pare brise ou les vitres des (potentiel) assayant
+* **Il peut lancer un écran de fumé ou même un grosse ondes EMP, Les impulsions électromagnétiques, Brouillages GPS, radio, satellite
+* **Il peut faire chauffer ou réfroidir la carrosserie en fonction du lieu
 ---
 # **Intérieur : Digne d'un palace sous stéroïdes 🏠😎""
 * **Une cuisine full équipé car en mission les repas doivent être bon.
