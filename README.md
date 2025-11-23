@@ -44,7 +44,7 @@ Particularité : le rouge lumineux n’est pas décoratif — c’est un champ d
 Surnom officieux : “Le Chuchotement du Diable”.
 
 
-# **Mon Super Camion DGSE – Version Légende Urbaine**
+# **Le Mastodonte DGSE – Version Légende Urbaine**
 ---
 ### **Gabarit Titanesque ⚙️🐋**
 * **Longueur:** 20 mètres. Le genre de longueur où les ronds-points se mettent à pleurer.
@@ -54,15 +54,15 @@ Surnom officieux : “Le Chuchotement du Diable”.
 * **Taille résérvoir : 2000L + recharge solaire car a dans le desert ou dans le groenland pas possiblilité de refaire le plein a une pompe a essence
 ---
 ### **Masse : « Oui. » 🛞💥**
-* **60 tonnes** à vide.
-* **80 tonnes** équipé, armé, alimenté.
+* **80 tonnes** à vide.
+* **100 tonnes** équipé, armé, alimenté.
 * Poids spirituel: **une menace administrative.**
 ---
 ### **Motorisation : Le Kraken Mécanique 🔥⚡**
 * **Tri-Hybride** : turbo-diesel militaire + générateurs électriques + supercondensateurs au graphène. peut fonctionner entièrement en élèctrique si pas essence
 * **Puissance:** 2 500 chevaux. pour 3000 N m
 * **Couple:** « Rien que le ralenti déplace des montagnes. »
-* **Transmission:** 8×8, torque vectoring, pneus increvables autogonflants, impossible a s'enliser dans le sables, la boue, neige et dans les sable mouvants et impossible a déraper sur la glace, gravier, etc, boîtes synchronisées par IA.
+* **Transmission:** 8×8, torque vectoring, pneus increvables autogonflants, impossible a s'enliser dans le sables et dans les sable mouvants et a déraper sur la glace, gravier, etc, boîtes synchronisées par IA.
 ---
 ### **Vitesse & Déplacement 🚀**
 * **Vitesse max:** 110 km/h malgré 60 tonnes (la physique a demandé un avocat).
@@ -93,9 +93,6 @@ Surnom officieux : “Le Chuchotement du Diable”.
 * **2 Lances grappin pour ramener des chose et il peut litéralement empêcher un jet de decoller juste en l'aggripant
 * **Capacité de vérrouiller 35 cibles a la fois
 * **2 Paintballs car juste drôle pour aveugler le pare brise ou les vitres des (potentiel) assayant
-* **Il peut lancer un écran de fumé ou même un grosse ondes EMP, Les impulsions électromagnétiques, Brouillages GPS, radio, satellite
-* **Il peut faire chauffer ou réfroidir la carrosserie en fonction du lieu
-* **Il a des lasers très puissant et il peut faire fondre du métal voire même de la pière
 ---
 # **Intérieur : Digne d'un palace sous stéroïdes 🏠😎""
 * **Une cuisine full équipé car en mission les repas doivent être bon.
@@ -113,7 +110,7 @@ Surnom officieux : “Le Chuchotement du Diable”.
 * **Garage interne** pour moto, drone lourd ou mini-buggy.
 * **Module médical**, imprimante 3D, ravitaillement auto.
 * **Autonomie:** 3 semaines sans aide extérieure.
-* **Capteurs:** lidar longue portée, infrarouge, thermique, bio-senseurs.
+* **Capteurs:** lidar longue portée, infrarouge, thermique, bio-senseurs, vision nocturne.
 * **IA embarquée:** sert aussi d'autopilote en autonomie total
 * **EMP ? Pas de problème. Les impulsions électromagnétiques ? Elle s’en fout. Brouillages GPS, radio, satellite, jammer ? Tu peux essayer de la rendre aveugle… elle s’en fiche. 🛰️🚫
 ---
