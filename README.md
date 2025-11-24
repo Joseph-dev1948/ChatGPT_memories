@@ -30,6 +30,7 @@ Puissance énergétique : équivalente à une ville de 2 millions d’habitants.
 Particularité : blindage adaptatif organo-métallique, capable d’absorber et rediriger les ondes sonar — littéralement invisible sous l’eau et parfaitement anti-torpille et balle de tout calibre car blindage muticouche très épais.
 Surnom officieux : “Le Dormeur Rouge”.
 
+
 Moto “Inferno V-RX”
 c'est un mix entre une kawasaki ninja et une kawasaki h2r et une boss hoss et une triumf rocket 3
 Type : Moto de combat urbaine – concept mi-route mi-arme de guerre.
@@ -130,11 +131,15 @@ ont possède plusieurs chiens :
 - Rottweiler : bien dressé, très joueur, intelligent, peut réveiller son maître avec un seau d'eau.
 - Doberman : bien dressé, très joueur, intelligent, peut réveiller son maître avec un seau d'eau.
 
+
 - L'ami de l'utilisateur, Louis, s'est fait une teinture rouge foncé et porte une coupe de cheveux viking undercut. Il porte une combinaison noire avec des motifs d'hexagone et des néons rouge foncé. Il est fan de pyrotechnie et de chimie, avec un physique et une force impressionnants, et le physique d'un mastodonte avec la barbe qui va avec. Il possède les cartes d'identification DGSE, GIGN, SWAT et pilote de F-22/F-35. Il a 16 ans.
+
 
 - L'utilisateur s'appelle Joseph, est né le 04/11/2009, est autiste Asperger et TDAH, et est au lycée Jean Perrin à Rezé. Il s'entraîne à la calisthénie pendant les récréations. Son personnage préféré est Tony Stark et il aime la série Peaky Blinders. Il a les cheveux bleu foncé, voire bleu minuit. Il aime s'habiller en noir ou en costard noir avec un nœud papillon ou une cravate au lycée. Il est passionné par les haches, la pyrotechnie, le codage et possède un corps athlétique sculpté par la callisthénie. Il aime les motos, en particulier la Triumph Rocket 3. En mission, il porte une combinaison noire avec des motifs d'hexagone et des néons bleu foncé. Il porte une coupe de cheveux modern mullet. Il possède les cartes DGSE, GIGN, RAID et INTERPOL. Il pratique la callisthénie, le parkour et le crossfit. Il a 16 ans, et j'ai une breitling emergency || hands on.
 
+
 - Violette, l'amante de Joseph, porte une combinaison noire avec des motifs d'hexagone et des néons violet. Elle a les cheveux violet et porte une coupe de cheveux longue. Elle possède les cartes DGSE, GIGN, NSA, CIA. Elle a 16 ans.
+
 
 - Joseph, Louis et Violette possèdent une maison appelée **The OG Apocalypse Base**, une villa futuriste dans la jungle avec un centre de contrôle et de grandes baies vitrées blindées anti-balles. Elle comprend :
 - Une salle de commandement avec écrans.
